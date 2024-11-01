@@ -4,7 +4,7 @@
 
 ## Integrantes
 
-- Tatiana xxxxxxxxxxx 
+- Narly Tatiana Gutiérrez Quitumbo  
 
 - Diego Alejandro Valle 
 
